@@ -3,4 +3,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#E3249A}{\textsf{Steer clear of their blades direction, their accuracy cannot be underestimated.}}$
 
-$\color{#F230A8}{\textsf{u can call me siver, they / them agender .}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$\color{#F230A8}{\textsf{u can call me siver, they / them agender .}}$
