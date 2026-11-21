@@ -1,8 +1,8 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![voidbreak](https://github.com/voidbreakingknight/voidbreakingknight/blob/bf53cc6d65dce406806614a1d625a27d8995bdff/Level50E%20(3).png) ㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![voidbreak](https://github.com/voidbreakingknight/voidbreakingknight/blob/bf53cc6d65dce406806614a1d625a27d8995bdff/Level50E%20(3).png) ㅤㅤㅤㅤ
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#E3249A}{\textsf{Steer clear of their blades direction, their accuracy cannot be underestimated.}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#E3249A}{\textsf{Steer clear of their blades direction, their accuracy cannot be underestimated.}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#F230A8}{\textsf{u can call me siver, they / them agender .}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#F230A8}{\textsf{u can call me siver, they / them agender .}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns lol page](https://guns.lol/voidbreaker_null)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns lol page](https://guns.lol/voidbreaker_null)
