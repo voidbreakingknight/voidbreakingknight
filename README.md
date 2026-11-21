@@ -5,4 +5,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#F230A8}{\textsf{u can call me siver, they / them agender .}}$
 
-[guns lol page](https://guns.lol/voidbreaker_null)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[guns lol page](https://guns.lol/voidbreaker_null)
